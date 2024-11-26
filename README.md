@@ -6,7 +6,7 @@ Does that make us intelligent beings, or are we simply just a fearless bunch who
 Regardless I shall exist as someone who strives to make sense of it all to honor my name, *Satya*, which means truth. 
 
 
-Anyways, I enjoy learning about history, languages, and the role of automation in human psychological development. My career aspirations will eventually lead me to becoming an engineer/researcher in NLP. 
+I enjoy learning about history, languages, and the role of automation in human psychological development. My career aspirations will eventually lead me to becoming an engineer/researcher in NLP. 
 I think that in order to succeed in this world of ours, you need ownership over something. To that end, you must look within and find out what you can offer the world, and eventually, own your contributions.
 
 The projects on this profile will be present as a reminder that I existed and I hope to leave an everlasting mark on our future. I pray my work can help advance ourselves in every branch of science altogether, and work towards achieving a natural philosopher's dream. 
